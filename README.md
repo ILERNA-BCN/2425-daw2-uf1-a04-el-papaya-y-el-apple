@@ -52,8 +52,3 @@ En **Wear4Ever**, creemos que juntos podemos lograr un impacto positivo en el mu
 📧 Para cualquier consulta, no dudes en escribirnos: [team@wear4ever.com](mailto:team@wear4ever.com)  
 
 Gracias por apoyar la moda sostenible y equitativa. 🌿 #Wear4Ever #ModaConPropósito
-
-
-
-
-
